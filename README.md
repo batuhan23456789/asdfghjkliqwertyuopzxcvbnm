@@ -1,0 +1,2 @@
+# asdfghjkliqwertyuopzxcvbnm
+asdfghjklşiişömnbvcxzxcvbnmöç.ipoıuytrew
